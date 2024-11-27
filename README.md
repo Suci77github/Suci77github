@@ -1,5 +1,5 @@
 - 👋 Hi, I’m SUCINDARAN S
-- Education : BE Electrical and Electronics and Engineering (second year).
+- Education : BE Electrical and Electronics and Engineering (third year).
 - College: Government College of Engineering(IRTT formerly), Erode.
 -engineering...
 
